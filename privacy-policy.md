@@ -45,4 +45,4 @@
 本ポリシーに関するお問い合わせは、App Storeに掲載されているサポート窓口までご連絡ください。
 
 
-brandseeb@gmail.com
+contact form https://docs.google.com/forms/d/e/1FAIpQLSdlxMpCz5wvirp-X8LBdrJuT58UtP3eO8mkJsfrzm396mSUEQ/viewform
